@@ -93,7 +93,7 @@ But let's not pin all my concerns onto the Moonrise Cleric here. She looks okay.
 
 It is notable that it needs to be attacking to do the synergy thing. That means that if you need it on defense, no synergy and no life for you. Which is unfortunate because, well, you're being attacked. 
 
-[{WE ARE FUCKING UNDER ATTACK meme}](https://i.kym-cdn.com/photos/images/newsfeed/001/384/923/135.jpg)
+![WE ARE FUCKING UNDER ATTACK](https://i.kym-cdn.com/photos/images/newsfeed/001/384/923/135.jpg)
 
 Bats being flyers makes me think that this is also a skies deck, like UW, and this card would support that since it wants you to be racing.
 
